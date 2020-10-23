@@ -3,6 +3,11 @@ I am not a programmer, ok? Btw, I don't even know what I do here lol.
 
 [Here](https://github.com/AyHa1810/Anything) you can do whatever you want, like asking something, sharing files, discussing, etc, 'cuz why not?!
 
+- Twitter: [@AyHa1810](https://twitter.com/AyHa1810)
+- Discord: AyHa1810#6514
+- Telegram: [AyHa1810](https://t.me/AyHa1810)
+- Youtube: [AyHa1810](https://www.youtube.com/channel/UCIhBgn5W2wpCVrcEaRAb4cw) (I'm not a Youtuber lol)
+
 <!--
 **AyHa1810/AyHa1810** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
