@@ -1,4 +1,7 @@
 ### Hi there 👋
+I am not a programmer, ok? Btw, I don't even know what I do here lol.
+
+[Here](https://github.com/AyHa1810/Anything) you can do whatever you want, like asking something, sharing files, discussing, etc, 'cuz why not?!
 
 <!--
 **AyHa1810/AyHa1810** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
