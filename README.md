@@ -5,7 +5,7 @@ I am not a programmer, ok? Btw, I don't even know what I do here lol.
 
 - Twitter: [@AyHa1810](https://twitter.com/AyHa1810)
 - Discord: AyHa1810#6514
-- Youtube: [AyHa1810](https://www.youtube.com/channel/UCsLEES6ztfp_AdyFudHcTTw) (I'm not a Youtuber lol)
+- Youtube: [AyHa1810](https://www.youtube.com/channel/UCsLEES6ztfp_AdyFudHcTTw)
 
 <!--
 **AyHa1810/AyHa1810** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
