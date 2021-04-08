@@ -1,11 +1,15 @@
-### Hi there 👋
-I am not a programmer, ok? Btw, I don't even know what I do here lol.
+### Hey you
+Listen, I am not a programmer, ok? Btw, I don't even know what I do here lol.
 
 [Here](https://github.com/AyHa1810/Anything) you can do whatever you want, like asking something, sharing files, discussing, etc, 'cuz why not?!
 
 - Twitter: [@AyHa1810](https://twitter.com/AyHa1810)
 - Discord: AyHa1810#6514
+- Discord Server: [AyHa1810's lobby](https://discord.gg/S2wkqk87qs)
 - Youtube: [AyHa1810](https://www.youtube.com/channel/UCsLEES6ztfp_AdyFudHcTTw)
+- GitHub: bruh you are already here
+
+k now that's it, now shut
 
 <!--
 **AyHa1810/AyHa1810** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
