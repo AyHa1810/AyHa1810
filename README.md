@@ -5,7 +5,7 @@ Listen, I am not a programmer, ok? Btw, I don't even know what I do here lol.
 
 - Twitter: [@AyHa1810](https://twitter.com/AyHa1810)
 - Discord: AyHa1810#6514
-- Discord Server: [AyHa1810's lobby](https://discord.gg/S2wkqk87qs)
+- Discord Server: [AyHa1810's lobby](https://discord.gg/Pg9Up4A3XB)
 - Youtube: [AyHa1810](https://www.youtube.com/channel/UCsLEES6ztfp_AdyFudHcTTw)
 - GitHub: bruh you are already here
 
