@@ -7,6 +7,9 @@ Listen, I am not a programmer, ok? Btw, I don't even know what I do here lol.
 - Discord: AyHa1810#6514
 - Discord Server: [AyHa1810's lobby](https://discord.gg/Pg9Up4A3XB)
 - Youtube: [AyHa1810](https://www.youtube.com/channel/UCsLEES6ztfp_AdyFudHcTTw)
+- Patreon: [AyHa1810](https://patreon.com/AyHa1810) (waste of moni)
+- Reddit: [u/AyHa1810](https://reddit.com/u/AyHa1810)
+- SoundCloud: [AyHa1810](https://soundcloud.com/AyHa1810)
 - GitHub: bruh you are already here
 
 k now that's it, now shut
