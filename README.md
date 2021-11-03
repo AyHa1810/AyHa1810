@@ -1,5 +1,6 @@
 ### Hey you
-Listen, I am not a programmer, ok? Btw, I don't even know what I do here lol.
+Listen, I am not a programmer, ok? Btw, I don't even know what I do here lol. \
+~~Haha im a code thief uwu~~
 
 [Here](https://github.com/AyHa1810/Anything) you can do whatever you want, like asking something, sharing files, discussing, etc, 'cuz why not?!
 
