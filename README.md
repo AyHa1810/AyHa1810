@@ -1,12 +1,12 @@
 ### Hey you
-Listen, I am not a programmer, ok? Btw, I don't even know what I do here lol. \
+I am not a programmer, I guess. Btw, I don't even know what I do here lol. \
 ~~Haha im a code thief uwu~~
 
-[Here](https://github.com/AyHa1810/Anything) you can do whatever you want, like asking something, sharing files, discussing, etc, 'cuz why not?!
+If you have any questions, you can ask me in the given socials or in the issues tab :D
 
 - Twitter: [@AyHa1810](https://twitter.com/AyHa1810)
 - Discord: AyHa1810#6514
-- Discord Server: [AyHa1810's lobby](https://discord.gg/Pg9Up4A3XB)
+- Discord Server: [yeah](https://discord.gg/Pg9Up4A3XB)
 - Youtube: [AyHa1810](https://www.youtube.com/channel/UCsLEES6ztfp_AdyFudHcTTw)
 - Patreon: [AyHa1810](https://patreon.com/AyHa1810) (waste of moni)
 - Reddit: [u/AyHa1810](https://reddit.com/u/AyHa1810)
